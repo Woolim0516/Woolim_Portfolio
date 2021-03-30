@@ -1,4 +1,4 @@
-# Woolim Kim
+# Woolim Kim (PDT for STA303H1)
 #### 5 Creekside Rd. Toronto, ON
 #### (647)721-0079 | woodong0516@gmail.com
 
