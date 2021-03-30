@@ -7,7 +7,7 @@ of Toronto St. George campus. My career goal is to go
 to the Teachers’ college and become a teacher in 
 places that are in needs of children’s education.
 
-![](https://github.com/Woolim0516/Woolim_Portfolio/blob/master/images/KakaoTalk_20210330_161914772.jpg)
+![](/images/KakaoTalk_20210330_161914772.jpg)
 ## Experiences
 Korean School, 23 Fasken Dr— Korean 
 School Teacher assistance
