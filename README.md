@@ -1,6 +1,6 @@
 # Woolim Kim
-### ||5 Creekside Rd. Toronto, ON||
-### ||(647)721-0079|woodong0516@gmail.com||
+#### 5 Creekside Rd. Toronto, ON
+#### (647)721-0079 | woodong0516@gmail.com
 
 I am currently studying Arts and Science at University 
 of Toronto St. George campus. My career goal is to go 
